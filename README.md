@@ -12,7 +12,7 @@ That is a secret meester
 
 ## Deployment 
 
-Like Navy Seals...
+Like Navy Seals...SEALS
 
 ## How to Contribute 
 
