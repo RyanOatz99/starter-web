@@ -8,7 +8,7 @@ Sample website with plenty of files for demos
 
 ## Purpose 
 
-That is a secret...
+That is a secret meester
 
 ## Deployment 
 
