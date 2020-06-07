@@ -8,11 +8,11 @@ Sample website with plenty of files for demos
 
 ## Purpose 
 
-That is a secret meester
+That is a secret meester Chonda 
 
 ## Deployment 
 
-Like Navy Seals...SEALS
+Like Navy Seals...Semen
 
 ## How to Contribute 
 
