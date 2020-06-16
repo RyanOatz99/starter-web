@@ -17,3 +17,7 @@ Like Navy Seals...Semen
 ## How to Contribute 
 
 Sign-up for free at Pornhub.com
+
+## Copyright 
+
+2020 Git.Training
