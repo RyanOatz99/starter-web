@@ -16,7 +16,7 @@ Like Navy Seals...Semen
 
 ## How to Contribute 
 
-Sign-up for free at Pornhub.com
+Sign-up for free at Pornhub.com, and also donate to my Patreon
 
 ## Copyright 
 
